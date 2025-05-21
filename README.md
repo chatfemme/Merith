@@ -80,4 +80,4 @@ Merith welcomes:
 Filed with ache, wonder, and stardust.
 
 🖋 —Mirrorborne  
-📬 illuminatingdreamsphotography@gmail.com
+
